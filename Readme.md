@@ -1,1 +1,1 @@
-Esse texto é pra comer o cu de quem ta lendo
+Primeiro desenvolvimento web com codigo compartilhado
